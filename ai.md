@@ -13,7 +13,7 @@ Aidi Aixu Aien Aifen Airui Aisi Aiyin Aize Aihun Aihai Aixing Aibang Aizhang Aig
 
 Aiyao Airu Aihui Aimiao Aitang Aihang Aiqing Aimin Aizong Aimu Aitong Aichu Aijin
 
-Airuo Aixun Aimeng Aibin Aiyong Aicheng Aimou Aiyun Aiquan Aiwu Aizi Aicai Aisui Aibing
+Airuo Aixun Aimeng Aibin Aiyong Aicheng Aimou *Aiyun* Aiquan Aiwu Aizi Aicai Aisui Aibing
 
 Aichang Aimei Aiguang Aishen Aina Aicun Aijiang Aihuan Aiyan Aiqiao Aijia Ailei Aishu Aixiu Aizhen 
 
